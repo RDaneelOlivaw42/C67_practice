@@ -1,4 +1,9 @@
-Once upon a time, greg and mike were transferred to a space station orbitting the sun to test a new 
-model for US Robots and Mechanical Men Corp. On the station, they assemble the model QT-15. QT-15 
-model was designed to take charge of the space station without any human supervisors. "What is my 
-purpose?" were it's first words. Mike said "good, then it's awake". 
+If you really want to hear about it, the first thing you'll probably want to know is where I was 
+born, an what my lousy childhood was like, and how my parents were occupied and all before they had 
+me, and all that David Copperfield kind of crap, but I don't feel like going into it, if you want to
+ know the truth. In the first place, that stuff bores me, and in the second place, my parents would 
+ have about two hemorrhages apiece if I told anything pretty personal about them. They're quite 
+ touchy about anything like that, especially my father. They're nice and all--I'm not saying that -
+ but they're also touchy as hell. Besides, I'm not going to tell you my whole goddam autobiography 
+ or anything. I'll just tell you about this madman stuff that happened to me around last Christmas 
+ just before I got pretty run-down and had to come out here and take it easy.
