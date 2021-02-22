@@ -6,4 +6,4 @@ me, and all that David Copperfield kind of crap, but I don't feel like going int
  touchy about anything like that, especially my father. They're nice and all--I'm not saying that -
  but they're also touchy as hell. Besides, I'm not going to tell you my whole goddam autobiography 
  or anything. I'll just tell you about this madman stuff that happened to me around last Christmas 
- just before I got pretty run-down and had to come out here and take it easy.
+ just before I got pretty run-down and had to come out here and take it easy. DB
